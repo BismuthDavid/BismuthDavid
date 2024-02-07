@@ -8,6 +8,4 @@ Currently, I'm immersed in a learning program called 'Mego', designed for ultra-
 aiming to diversify the hi-tech workforce in Israel and provide access to the tech world for 
 individuals whose life paths might not have led them there otherwise. 
 
-My linkedin page: https://www.linkedin.com/in/david-bismuth-844b24217/
-
 Excited to see where this journey takes me!
